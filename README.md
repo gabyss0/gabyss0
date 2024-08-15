@@ -2,3 +2,4 @@ Olá, me chamo Gabrielly, tenho 15 anos e moro na cidade de Araruna, localizada 
 
 
 ![](https://media1.tenor.com/m/whpkFZDBEQcAAAAC/doguinho-cachorro-c%C3%A9u-cachorro.gif)
+![](https://media1.tenor.com/m/a5GJcg1wIqcAAAAC/dog-crazy-dog.gif)
